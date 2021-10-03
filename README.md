@@ -1,4 +1,4 @@
-# 👾 Jesse Meyer, MSMIS, PMP, CSM 🕹️
+# 👾 Jesse Meyer🕹️# ## MSMIS, PMP, CSM 
 ## Full Stack Developer | Process Improvement Specialist | Project Management Professional | Information Systems and Data Analyst
 ### Certified Project Management Professional - *Project Management Institute, 2014*
 ### Certified SCRUM Master - *Scrum Alliance, 2015*
